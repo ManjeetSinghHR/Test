@@ -1,5 +1,3 @@
-12 October, 2024
-
 13 October, 2024
 
 14 October, 2024
