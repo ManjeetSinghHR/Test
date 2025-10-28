@@ -1,5 +1,3 @@
-18 October, 2025
-
 19 October, 2025
 
 20 October, 2025
