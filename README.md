@@ -1,5 +1,3 @@
-31 October, 2026
-
 01 November, 2026
 
 02 November, 2026
